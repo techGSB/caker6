@@ -1,0 +1,1 @@
+. a popular and tasty seasonal sponge cake recipe made with cake batter and mango pulp. the recipe is very similar to the sponge cake or vanilla cake but has an additional strong flavour of mango pulp in it. it can be served either as a dessert recipe with a choice of frosting or as an evening snack with a choice of coffee or tea beverage.
